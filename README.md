@@ -6,7 +6,7 @@ I used to teach french abroad and in France. I wanted my pupils giving the best 
 <Enter> I'm currently looking for an internship so if you want to tell me about your project, just send me a message and I will reply within 24h. linkedin.com/in/magalie-choiset
   
  ### Fun/Interesting facts: 
-* I love asian culture (I taught a few months in China and spent my 3rd year of university in Japan):cn: :jp:
+* I love asian culture (I taught a few months in China and spent my 3rd year of university in Japan)  :earth_asia:
 * I also love Spain (if you contact me, I could tell you how I ended up in Oviedo when I had found an internship in Kharkiv) 🇪🇸
 * My experience proved me I could go anywhere even whithout speaking the language of the place (I met really helpful people):airplane:
 * I'm interested in psychology, have a NLP diploma and try to use transactional analysis when I have to chose a wise way to react (that's why my car is flawless even driving in Marseille)
