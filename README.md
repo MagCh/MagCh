@@ -1,16 +1,15 @@
-### Hi there 👋
+## Hi there 👋
+## About me:
+I love spending my time learning anything.
+I used to teach french abroad and in France. I wanted my pupils giving the best of themselves, so I became a coach. My latest challenge is learning how to code websides because nowadays communicate online is as important as raising your voice in real life. We all have something to say, a talent to share. That's how I want to help.
 
-<!--
-**MagCh/MagCh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<Enter> I'm now looking for an internship so if you want to tell me about your project, just send me a message and I will reply within 24h.
 
-Here are some ideas to get you started:
+⚡ Interesting facts: 
+* I love asian culture (I taught a few months in China and spent my 3rd year of university in Japan)
+* I also love Spain (if you contact me, I could tell you how I ended up in Oviedo when I had found an internship in Kharkiv)
+* My experience proved me I could go anywhere even whithout speaking the language of the place (I met really helpful people)
+* I'm interested in psychology, have a NLP diploma and try to use transactional analysis when I have to chose a wise way to react (that's why my car is flawless even driving in Marseille)
+* I play guitar and I love watching tutorials and reviews on youtube
+* My first guitar is signed by Pata from X-Japan
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
