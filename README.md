@@ -1,7 +1,7 @@
 ## Hi there 👋
 ### About me:
 I love spending my time learning anything.
-I used to teach french abroad and in France. I wanted my pupils giving the best of themselves, so I became a coach :muscle:. My latest challenge is to learn how to code websites. Nowadays communicate online is as important as raising your voice in real life. We all have something to say, a talent to share. That's how I want to help.
+I used to teach french abroad and in France. I wanted my pupils giving the best of themselves, so I became a coach :muscle:. My latest challenge is to learn how to code websites. Nowadays communicating online is as important as raising your voice in real life. We all have something to say, a talent to share. That's how I want to help.
 
 <Enter> I'm currently looking for an internship so if you want to tell me about your project, just send me a message and I will reply within 24h. linkedin.com/in/magalie-choiset
   
