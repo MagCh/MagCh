@@ -11,5 +11,5 @@ I used to teach french abroad and in France. I wanted my pupils giving the best 
 * My experience proved me I could go anywhere even whithout speaking the language of the place (I met really helpful people):airplane:
 * I'm interested in psychology, have a NLP diploma and try to use transactional analysis when I have to chose a wise way to react (that's why my car is flawless even driving in Marseille)
 * I play guitar and I often watch tutorials and reviews on youtube 
-* My first guitar is signed by Pata from X-Japan
+* My first guitar is signed by Pata from X-Japan :metal:
 
